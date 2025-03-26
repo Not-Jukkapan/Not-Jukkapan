@@ -1,7 +1,7 @@
 # Jukkapan Kongjun
 
 **Full Stack Developer**  
-Khonkaen, Thailand | 0989497997 | [jukkapan.kn@.com](mailto:jukkapan.kn@gmail.com)
+Khonkaen, Thailand | 0989497997 | [jukkapan.kn@gmail.com](mailto:jukkapan.kn@gmail.com)
 
 ---
 
